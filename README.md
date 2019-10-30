@@ -1,0 +1,2 @@
+# seo
+https://seokral.com
